@@ -2,7 +2,6 @@
 
 **Houston, TX**
 **Email:** [ansarurrahman5@outlook.com](mailto:ansarurrahman5@outlook.com)
-**Phone:** +1 (346) 699-6777
 **Portfolio** | **LinkedIn** | **GitHub**
 
 ---
